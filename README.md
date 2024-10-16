@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @roguejupiter
+- 👀 I’m interested in cybersecurity, software development and coding in python and C++
+- 🌱 I’m currently learning to code in C++
+- 💞️ I’m looking to collaborate on learning cybersecurity
+- 📫 How to reach me email me at age.report_06@icloud.com
+- 😄 Pronouns: He/him
